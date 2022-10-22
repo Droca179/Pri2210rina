@@ -18,8 +18,7 @@
 <p><a href="https://gitlab.com/Smileskid122/na1lc2n1309/-/raw/main/shenyun1.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 顶级艺术 -009fcc?logoWidth=1" title="视频: 顶级艺术" alt="视频:  顶级艺术"></a></p>  
 
   
-<p>我们非常珍惜这个机缘！ 你已经平安了，所以我们希望你的家人也得到平安。 请帮助他们！ 不要让他们错过这个机缘！ </p>
-
+<img src="/anh/haha.jpg"><br>
   
   
   
